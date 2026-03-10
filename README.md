@@ -1,1 +1,0 @@
-# MAD_2_project
